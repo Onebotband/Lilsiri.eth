@@ -1,2 +1,2 @@
 # Lilsiri.eth
-Cyberpunk music label https://dollet.eth.link founder
+Cyberpunk music label and https://dollet.eth.link founder
