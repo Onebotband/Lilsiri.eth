@@ -1,2 +1,2 @@
 # Lilsiri.eth
-https://Ethgang.eth.link - cyberpunk art/music label 
+https://Ethgang.eth.link - cyberpunk crypto art/music label 
