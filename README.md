@@ -1,2 +1,2 @@
 # Lilsiri.eth
-Aibeats cyberpunk music label and https://dollet.eth.link founder
+https://Ethgang.eth.link - cyberpunk art/music label 
